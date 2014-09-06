@@ -12,4 +12,6 @@
 
 
 **и у вас чехол тоже не ахти**
+
+
 [ картинка ](http://yandex.ru/images/search?img_url=http%3A%2F%2Fimg141.imageshack.us%2Fimg141%2F1024%2F87dcdb40b52cd7e96c17029.gif&uinfo=sw-1366-sh-768-ww-1349-wh-660-pd-1-wp-16x9_1366x768&_=1410004466288&p=2&viewport=wide&text=Чип&pos=76&rpt=simage&pin=1)
